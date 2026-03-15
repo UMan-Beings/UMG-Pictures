@@ -45,3 +45,12 @@
 - https://uman-beings.github.io/UMG-Pictures/learn-how-to-park-pls-v0-ueyzzjhj6e3f1.webp
 - https://uman-beings.github.io/UMG-Pictures/lol-v0-lf22qalq7ryf1.jpeg
 - https://uman-beings.github.io/UMG-Pictures/this-costume-was-so-hilarious-v0-x4qbgq9j6lyf1.jpeg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305154756.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305161029.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305161918.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305162045.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305162917.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG20260305165418.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG_20260305_154339.jpg
+- https://uman-beings.github.io/UMG-Pictures/IMG_20260305_160422.jpg
+- https://uman-beings.github.io/UMG-Pictures/hughim.jpg
